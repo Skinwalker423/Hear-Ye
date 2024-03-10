@@ -1,0 +1,1 @@
+Check out random quotes from Kanye West
